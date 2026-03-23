@@ -6,5 +6,5 @@
 
 <div align="center">
 
-<img src="https://files.catbox.moe/sbe70l.webp" alt="big ass" width="120"/> **[MONIKA](https://github.yuriduo)**
+<img src="https://files.catbox.moe/sbe70l.webp" alt="big ass" width="120"/> **[MONIKA](https://github.com/yuriduo)**
  </p>
